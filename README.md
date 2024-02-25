@@ -1,0 +1,2 @@
+# gampangkok
+gampang banget ,biso
